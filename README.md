@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SujitThonse
+- 👋 Hi, I’m Sujit
 - 📫 You can reach me on Sujit.thonse@sap.com .. and please no spams 👻
 
 <!---
